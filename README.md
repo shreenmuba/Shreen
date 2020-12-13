@@ -1,0 +1,2 @@
+# Shreen
+hey, want to buy a laptop, Here is a good offer to buy refurbished laptop at a reasonable price and it is available only on FlipKarona in a very good price. These products are fully tested and verified by engineers. HP 6300, Refurbished Desktop is available on FlipKarona at a good offer. If you are planning to buy HP refurbished laptop check out the FlipKarona online shopping platform. Product Specifications Brand - HP Model - ELITEBOOK 8570P Processor - Core i5 3rd Gen RAM - 4 Gb HDD - 500 GB Screen - 15.6 Inch
